@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Amanikabongo
-- 👀 I’m interested in: softwareengineering
+- 👀 I’m interested in: software engineering
 - 🌱 I’m currently learning :software engineering 
 - 📫 How to reach me:amanslimwa2@gmail.com 
 - 😄 Pronouns:Male 
